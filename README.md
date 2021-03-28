@@ -3,7 +3,7 @@ Hi! I'm Matthew.
 I've been an amateur programmer for most of my life, working in other fields such as 
 hospitality, wholesale distribution, and brands. Computer knowledge gave my career a considerable
 edge over others as I was able to automate time-consuming tasks, use better tracking, 
-deliver clearer information ... the list goes on.
+integrate specific needs with general-use software... the list goes on.
 
 Unfortunately, the 2020/21 UK government lockdowns (accompanied by the complete shutdown of the industry I was in) 
 during COVID-19 have left many people without any other option but to look at different career paths.
