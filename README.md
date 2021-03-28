@@ -5,9 +5,9 @@ hospitality, wholesale distribution, and brands. Computer knowledge gave my care
 edge over others as I was able to automate time-consuming tasks, use better tracking, 
 deliver clearer information ... the list goes on.
 
-Unfortunately, the 2020/21 UK government lockdowns (accompanied by the complete shutdown of some industries) 
+Unfortunately, the 2020/21 UK government lockdowns (accompanied by the complete shutdown of the industry I was in) 
 during COVID-19 have left many people without any other option but to look at different career paths.
-I've chosen to go into tech, as it is one field that I've been able to adjust to quickly, and have a 
+I've chosen to go into tech, as it is one field that I can adjust to quickly and have a 
 deep-rooted interest in.
 
 If you'd like to get in touch, please send me a message via this profile or by LinkedIn below.
